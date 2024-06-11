@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+仅用于个人爱好，无关任何组织 企业 或个人 ！
+热爱祖国 China 
+不涉及任何有关政治 暴力 血腥 黄色 毒品 等任何违法违规行为！ 
